@@ -2,7 +2,8 @@
 
 ### Aqui estão algumas informações que podem lhe interessar:
 
-- Link do twitter: https://twitter.com/jeancac
+- Link Twitter: https://twitter.com/jeancac
 - Link Instagram: https://www.instagram.com/jeancac32
+- Link Linkedin: https://www.linkedin.com/in/jean-carlos-costa-341405229/
 
 #### Vamos nos conectar?
